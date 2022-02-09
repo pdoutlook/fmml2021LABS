@@ -1,2 +1,2 @@
 # fmml2021LABS
-will add the labs after  gate.
+LABS BEFORE THIS( MODULE 4 LAB 3) WERE SUBMITTED THROUGH GOOGLE FORMS .
